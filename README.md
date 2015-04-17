@@ -153,7 +153,7 @@ A吧永久求邀请码专贴链接：http://ask.acfuner.com/invite
 
 ---
 
-更新更正用，请勿在此楼回帖。
+更新更正用，请勿在此楼回帖。  
 账号问题部分参考了[冰雪の小雪](http://tieba.baidu.com/home/main?un=%B1%F9%D1%A9%A4%CE%D0%A1%D1%A9&fr=pb) 的帖子，感谢。
 
 ------
